@@ -4,4 +4,4 @@ welcome to umm... where again?!
 
 profile art by my favorite artist https://x.com/yao_wang29
 
-starry405.neocities.org
+https://starry405.neocities.org
